@@ -1,2 +1,1 @@
-# READ
-https://ne3r1umf0x.straw.page
+# https://ne3r1umf0x.straw.page
